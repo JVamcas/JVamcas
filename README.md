@@ -7,7 +7,7 @@
 
 - I'm Looking for work opportunities - remote or local are welcome. If you have a project you are working on, I'd like to hear about it.
 
-- 📫 Catch me on : pet0001kambala@gmail.com or DM me at: https://twitter.com/JVamcas
+- 📫 Catch me on : pet0001kambala@gmail.com
 
 <!---
 JVamcas/JVamcas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
